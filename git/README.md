@@ -1,1 +1,1 @@
-when there is a will there is a way
+swhen there is a will there is a way
